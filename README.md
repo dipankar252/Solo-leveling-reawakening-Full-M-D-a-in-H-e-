@@ -27,7 +27,7 @@ The movie is available in multiple download formats for your convenience:
 - **480p**: The perfect middle ground for those who want good video quality while saving some storage space. Suitable for most devices.
 - **1080p**: The highest resolution available for those who want to enjoy every detail in Full HD. If you have a large screen or prefer the best quality, this is the recommended option.
 
-All options are available for **free download** and can be accessed from the [Vegamovies Free](https://vegamovies.com/) website. Whether you're looking to download for offline viewing or stream online, you'll find the appropriate links below for easy access.
+All options are available for **free download** and can be accessed from the [Anime4U]([http://netflix.anime4u.store/posts/solo-leveling-reawakening-2024/) website. Whether you're looking to download for offline viewing or stream online, you'll find the appropriate links below for easy access.
 
 ---
 
